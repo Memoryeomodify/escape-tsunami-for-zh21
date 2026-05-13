@@ -1,4 +1,4 @@
-
+Download escape tsunami for brainrots Script elite for escape tsunami for brainrots, the best script available, featuring aimbot and auto-collect. This powerful tool ensures you
 
 
 
